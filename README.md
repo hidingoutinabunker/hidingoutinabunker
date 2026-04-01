@@ -1,1 +1,1 @@
-i srsly dont know how to work ts
+give me like a few weeks or smth , smh rn guys
